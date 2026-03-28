@@ -1,4 +1,6 @@
-## Hi there 👋
+![](https://github.com/koii1337/koii1337/blob/e9ddf6b15f765faeb34d283b2205f7ce49e27d5b/Untitled918_20260328150458.png)
+![](https://github.com/koii1337/koii1337/blob/8eab5f55e61f6284b45c77025c92f297a89b7347/Untitled916_20260328144935.png)
+![](https://github.com/koii1337/koii1337/blob/e9ddf6b15f765faeb34d283b2205f7ce49e27d5b/Untitled918_20260328150458.png)
 
 <!--
 **koii1337/koii1337** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
